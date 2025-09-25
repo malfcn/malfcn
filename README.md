@@ -1,4 +1,4 @@
 
-## 「◂ [↻](https://github.com/malfcn) [▸](https://github.com/malfcn?tab=repositories)」 󠀮󠀮󠀮 Guilherme (malfcn/malfxn) 
+## ◂ [↻](https://github.com/malfcn) [▸](https://github.com/malfcn?tab=repositories) Guilherme (malfcn/malfxn) 
 
 empty yet
